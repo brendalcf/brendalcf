@@ -44,8 +44,8 @@ Aqui estão as ferramentas e linguagens que uso para dar vida aos meus projetos:
 
 ## 🌺 **Contato**
 Adoraria saber mais sobre você e suas ideias! Vamos conversar?  
-📩 Email: [seuemail@exemplo.com](mailto:seuemail@exemplo.com)  
-📱 LinkedIn: [Seu Perfil](https://www.linkedin.com/in/seu-perfil)  
+📩 Email: [brendfreitas@gmail.com](mailto:brendfreitas@gmail.com)  
+📱 LinkedIn: [Brenda Carvalho]([https://www.linkedin.com/in/seu-perfil](https://www.linkedin.com/in/brenda-carvalho-260608199/))  
 
 ---
 
