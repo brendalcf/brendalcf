@@ -45,8 +45,7 @@ Aqui estão as ferramentas e linguagens que uso para dar vida aos meus projetos:
 ## 🌺 **Contato**
 Adoraria saber mais sobre você e suas ideias! Vamos conversar?  
 📩 Email: [brendfreitas@gmail.com](mailto:brendfreitas@gmail.com)  
-📱 LinkedIn: [https://www.linkedin.com/in/brenda-carvalho-260608199/]([https://www.linkedin.com/in/seu-perfil](https://www.linkedin.com/in/brenda-carvalho-260608199/))  
-
+📱 LinkedIn: [Brenda Carvalho](https://www.linkedin.com/in/brenda-carvalho-260608199/])
 ---
 
 > _“A tecnologia só é mágica quando é usada para criar o extraordinário."_ – **Eu, talvez!**
