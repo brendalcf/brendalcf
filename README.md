@@ -48,7 +48,7 @@ Adoraria saber mais sobre você e suas ideias! Vamos conversar?
 📱 LinkedIn: [Brenda Carvalho](https://www.linkedin.com/in/brenda-carvalho-260608199/])
 ---
 
-> _“A tecnologia só é mágica quando é usada para criar o extraordinário."_ – **Eu, talvez!**
+> _“A tecnologia só é mágica quando é usada para criar o extraordinário."_ 
 
 ✨ **Obrigada por passar por aqui!** ✨  
 Espero que meus projetos sejam tão inspiradores quanto o universo da tecnologia é para mim. 💖
